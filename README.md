@@ -11,3 +11,4 @@ I respect some of these people more than others
  * E1bito - Good dev, has a good rep. I feel bad for what Predz did to him though.
  * My Mom - Raised me, is very good mother.
  * Oyuh - Knows javascript, I owe him my life. Very cute habibi ooloolooloolooloololloolloollooloolloollool
+ * OilSlug - Is my fucking brother
